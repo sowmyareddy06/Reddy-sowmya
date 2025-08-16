@@ -72,21 +72,3 @@ This concept supports applications in:
 ---
 
 Enjoy sending messages into the future! 🕊💫
-
-
-
-
-0xd2124c55e6c89ca7c8666f144c0bd98e3cd8a18143be23e00ba010ddeb1dfb86
-
-
-
-
-
-
-![Transaction success](https://github.com/user-attachments/assets/50ee6ed7-0cca-412c-b390-6f1de68a0de9)
-
-
-
-
-
-
