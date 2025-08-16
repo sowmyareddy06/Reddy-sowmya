@@ -71,4 +71,19 @@ This concept supports applications in:
 
 ---
 
-Enjoy sending messages into the future! 🕊💫
+CONTRACT DETAILS:-
+
+0xe0ac47a470d80240c9a64e691ce67fb045f175949a6873e6fe538c20a95dad4e
+
+
+<img width="1918" height="966" alt="forevertransaction" src="https://github.com/user-attachments/assets/30f2f542-a860-4a5d-87f6-a0739250b9ea" />
+
+
+
+<img width="1912" height="956" alt="forever frontpage" src="https://github.com/user-attachments/assets/b84ae35f-a04d-4a1d-9151-4ebf52ac9472" />
+
+
+
+
+
+
